@@ -1,4 +1,3 @@
-# README.md
 # Hi!👋, I'm Hannah.
 
 # About Me
